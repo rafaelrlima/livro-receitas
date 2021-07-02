@@ -13,7 +13,6 @@
 
 1. Em uma panela a fogo médio, acrescente o óleo e o caldo de galinha
 2. teste
-3. teste
 
 
 
